@@ -1,4 +1,4 @@
-<img src="https://cdn.discordapp.com/attachments/881643775884144670/901920836557094992/kazutora-hanemiya-tokyo-revengers.gif" align="right" width="500" height="250">
+<img src="https://cdn.discordapp.com/attachments/881643775884144670/901920836557094992/kazutora-hanemiya-tokyo-revengers.gif" align="right" width="400" height="250">
 
 ### Hi I'm There LaynHex <img src="https://cdn.discordapp.com/attachments/890235708193779742/901912524809711686/VOXIC_Diger_Emojiler_158.png?v=1" height="20px"></h2>
 
