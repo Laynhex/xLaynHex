@@ -1,6 +1,6 @@
 <img src="https://cdn.discordapp.com/attachments/881643775884144670/901920836557094992/kazutora-hanemiya-tokyo-revengers.gif" align="right" width="400" height="250">
 
-### Hi I'm There LaynHex <img src="" height="20px"></h2>
+### Hi I'm There LaynHex
 
 <p align="left">Selam, ben LaynHex kendi hâlimde takılıyorum :D 
 
